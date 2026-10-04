@@ -1,4 +1,4 @@
 # karlluo1k.github.io
-I love cats. 
 
-20 years old, a student. 
+21 years old, a student. 
+Big fan of Arknights now. 
